@@ -11,3 +11,4 @@ Finally we get the optimal proposal
 
 ![image](https://user-images.githubusercontent.com/84602829/214520151-2a340631-0f00-4440-b16e-e4d498734c46.png)
 
+![DALL·E 2023-01-24 17 49 47 - color f1 track analysis 3d](https://user-images.githubusercontent.com/84602829/214523189-e629463e-0f43-40fc-85d1-1822bb8025ca.png)
